@@ -1,7 +1,7 @@
 # Does Donald Trump Want to Ban TikTok?
 
 Donald Trump, the 45th President of the United States, has made headlines several times for his stance on TikTok. TikTok is a popular social media app owned by the Chinese company ByteDance. It allows users to create and share short videos. The app is especially popular among teenagers and young adults. But Trump has expressed concerns about TikTok’s ties to China.
-For more insights and updates, visit [USABlogOrbit] (https://usablogorbit.com/why-banning-tiktok/)#
+For more insights and updates, visit [USABlogOrbit] (https://usablogorbit.com/why-banning-tiktok/)
 
 ## Why Does Trump Want to Ban TikTok?
 
